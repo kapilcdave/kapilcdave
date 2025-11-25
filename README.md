@@ -7,5 +7,3 @@ Feel free to check out my music on my YouTube channel Kapil's World: youtube.com
 📫 How to reach me: 
 email: kapildave@berkeley.edu
 
-LinkedIn: linkedin.com/in/kapilcdave
-
